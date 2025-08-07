@@ -1,6 +1,11 @@
 
 Tenho experiência na área da telecomunicações, como técnico de instalação e reparo da fibra óptica.
 
+Tenho treinamentos em algumas NRs
+NR05, NR06, NR17, NR10, NR23, NR33, NR35
+Habilitado CNH AB
+Cursos nas áreas de Software + Hardware
+
 Também sou Oficial de Rede, atuo
 não somente como FTTH, mas também como FTTA  e FTTX. estou com quase 7 anos de experiência nesse ramo. 
 
